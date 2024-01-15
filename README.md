@@ -9,4 +9,3 @@ ohjinn
 히히히ㅏㅣ하
 taesic
 jiwon
-ㅇㅇㅇ
