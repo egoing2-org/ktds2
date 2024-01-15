@@ -3,4 +3,5 @@ Banghwan Lee
 sein
 soyeon
 kangho!
-히히히
+쿵 짝 나는 채연!
+하핳
